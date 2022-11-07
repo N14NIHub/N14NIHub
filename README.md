@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @N14NIHub
+- Im a logo designer and interested in coding
+- Learning program languange
